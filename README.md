@@ -1,3 +1,8 @@
-<p align="center"><img src="https://static.wikia.nocookie.net/animatic-battle-battle/images/f/f7/AnimaticBackground.png" alt="animatic battle intro background" width=506px/></p>
-<hr/>
-<p align="center"><strong>ufo/clock/book, it/xe, 17, audhd haver, eng/esp</strong></p>
+<p align="center"><img src="https://www.goatlings.com/images/forums/l.gif"><img src="https://www.goatlings.com/images/forums/e.gif"><img src="https://www.goatlings.com/images/forums/e.gif"> <img src="https://www.goatlings.com/images/forums/mail.gif"> <img src="https://www.goatlings.com/images/forums/c.gif"><img src="https://www.goatlings.com/images/forums/l.gif"><img src="https://www.goatlings.com/images/forums/o.gif"><img src="https://www.goatlings.com/images/forums/c.gif"><img src="https://www.goatlings.com/images/forums/k.gif"> <img src="https://www.goatlings.com/images/forums/book.gif"> <img src="https://www.goatlings.com/images/forums/b.gif"><img src="https://www.goatlings.com/images/forums/o.gif"><img src="https://www.goatlings.com/images/forums/o.gif"><img src="https://www.goatlings.com/images/forums/k.gif"> </p>
+<p align="center">it/xe <img src="https://www.goatlings.com/images/forums/doom.gif"> 17 <img src="https://www.goatlings.com/images/forums/spin.gif"> audhd <img src="https://www.goatlings.com/images/forums/yell.gif"> eng/esp</p>
+<br/>
+<p align="center"><img src="https://www.goatlings.com/images/forums/nap.gif"><img src="https://www.goatlings.com/images/forums/nap.gif"><img src="https://www.goatlings.com/images/forums/nap.gif"></p>
+<br/>
+<p align="center"><img src="https://www.goatlings.com/images/forums/trot.gif"> no dni, i hide and ignore people freely usually based on fandom. if you are under 16 or over 19 iwc</p>
+<p align="center"><img src="https://www.goatlings.com/images/forums/turn.gif"> i like bfdi, itft, ab, and sometimes one. i also like minecraft, law of talos/endzone, and battleblock theatre/castle crashers</p>
+<p align="center"><img src="https://www.goatlings.com/images/forums/send.gif"> if you believe ive done anything genuinely wrong please message me on <a href="https://discordid.netlify.app/?id=424326918549012490">discord</a>! do not "call me out" publicly</p>
