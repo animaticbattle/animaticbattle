@@ -5,5 +5,3 @@
 <br/>
 <p align="center"><img src="https://www.goatlings.com/images/forums/trot.gif"> no dni, i hide and ignore people freely usually based on fandom. if you are under 16 or over 19 iwc</p>
 <p align="center"><img src="https://www.goatlings.com/images/forums/turn.gif"> i like bfdi, itft, and ab. i also like minecraft, law of talos/endzone, and battleblock theatre/castle crashers</p>
-<p align="center"><img src="https://www.goatlings.com/images/forums/send.gif"> if you believe ive done anything genuinely wrong message me on <a href="https://discordid.netlify.app/?id=424326918549012490">discord</a>! do not "call me out" publicly</p>
-<p align="center"><img src="https://www.goatlings.com/images/forums/kiss.gif"> i am heavily attached to book bfdi. separating me from her makes me unreasonably angry, so dont do that lol</p>
